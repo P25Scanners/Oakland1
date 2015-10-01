@@ -25,3 +25,9 @@ for p25 learnin checkout:
 the guy that wrote the two above softwares put together a cool pdf:
   http://static1.1.sqspcdn.com/static/f/679473/25461596/1411158918277/Sep17_05_Berndt_RecordingFire.pdf?token=f2qWeP7IIvMb3d6i1Z05HRu2fmE%3D
 
+
+
+EDUCATIONAL RESOURCES
+
+p25
+http://www.dvsinc.com/papers/p25_training_guide.pdf
